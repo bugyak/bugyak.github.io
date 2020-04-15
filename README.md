@@ -1,0 +1,1 @@
+# bugyak.github.io
